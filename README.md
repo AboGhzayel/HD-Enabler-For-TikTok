@@ -1,1 +1,1 @@
-# HD-Enabler-For-TikTok
+https://moreinfo.thebigboss.org/moreinfo/depiction.php?file=tiktokhdenablerDp
